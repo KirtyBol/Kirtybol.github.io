@@ -1,1 +1,1 @@
-Let's put the extra stuff here
+Let's put the Photos and Files in one map
